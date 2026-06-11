@@ -1,6 +1,5 @@
-> [!IMPORTANT]
->this is a wip haha
+<p align="center"> this is a wip haha </p>
 
-# tuichiffre, my greatest experiment
-<p>everything here is sort of like a second readme yea i think it'll be fun to have multiple with different styles</p>
-ill add more later sighh yea haha
+<p align="center">
+<img src="https://github.com/tuichuf/tuichuf/blob/0fdcb863a2ab69aa68afc1bf1008b605ccb79ee3/eddsworld-paul.gif" width="500"> 
+</p>
