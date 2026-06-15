@@ -14,14 +14,34 @@ proshippers, racist, homophobic + transphobic, necrophiles, israel supporters, t
 </p>
 
 <p align="center"> <img src="https://github.com/tuichuf/tuichuf/blob/f93d6c719dfa6dcc366f8ad8ffd5bef0e0c0b640/bandage.gif" width="15"> call me tuichuf / castiel or whoever im cosplaying <img src="https://github.com/tuichuf/tuichuf/blob/f93d6c719dfa6dcc366f8ad8ffd5bef0e0c0b640/small%20gun.gif" width="15"> </p>
-<p align="center"> any and all pronouns are fine </p>
-<p align="center"> be sure to check out the sites i have linked as there is more info </p>
 
 <p align="center">
 <img src="https://github.com/tuichuf/tuichuf/blob/7f003d22885178b9299964c5aa410bb461270751/target.gif" width="50"> 
 </p>
 
-<p align="center"> LASTLY CHECK OUT MY FRIENDS I HAVE TAGGED AYYY </p>
+<p align="center"> CHECK OUT MY FRIENDS I HAVE TAGGED AYYY </p>
 <p align="center">
 <img src="https://github.com/tuichuf/tuichuf/blob/0fdcb863a2ab69aa68afc1bf1008b605ccb79ee3/eddsworld-paul.gif" width="500"> 
 </p>
+
+<p align="center">
+<img src="https://github.com/tuichuf/tuichuf/blob/da57fcf4a1094c15b650192f736fb94ade8b4a96/red.gif" width="500"> 
+</p>
+
+<p>
+<img align="left" src="https://github.com/tuichuf/tuichuf/blob/e044df3ea49432f9f774a8e70a21752a8ff371c6/paul%20and%20patryck.gif" width="500">
+</p>
+
+<br> <br> <br> <br>
+
+<p align="right"> oh nah bruh our red leader looks frackin mad as hell </p>
+
+<br> <br> <br> <br> <br> <br> <br> <br>
+
+<p>
+<img align="right" src="https://github.com/tuichuf/tuichuf/blob/e044df3ea49432f9f774a8e70a21752a8ff371c6/tord%20upset.gif" width="282"> 
+</p>
+
+<br> <br> <br> <br>
+
+<p align="center"> theyll get what they deserve </p>
