@@ -1,8 +1,16 @@
 <details <p align="center">
-<summary> $${\color{#BA0000} DNI }$$  </summary>
+<summary> $${\color{#BA0000} DNI, ⠀PLEASE ⠀READ⠀BEFORE⠀INT}$$  </summary>
 
-proshippers, racist, homophobic + transphobic, necrophiles, israel supporters, trump/MAGA/ICE supporters, wincest fans
+  proshippers, racist, homophobic + transphobic, necrophiles, israel supporters, trump/MAGA/ICE supporters, wincest fans
+</details>
 
+<details <p align="center">
+<summary> $${\color{#9CAFA1} PONYTOWN⠀NOTES }$$  </summary>
+<br>
+  
+  *im not into roleplayin as paul or other characters im cosplayin + dont force me into your rp* <br> <br>
+ *not very talkative unless with friends or already usin public chat,* **PLEASE W2I** <br> <br>
+ *c + h freely, ESPECIALLY FANDOMS IM IN PLEASE INT AND SIT WITH ME*
 </details>
 
 <p align="center">
@@ -16,7 +24,7 @@ proshippers, racist, homophobic + transphobic, necrophiles, israel supporters, t
 <p align="center"> 
 <img src="https://github.com/tuichuf/tuichuf/blob/f93d6c719dfa6dcc366f8ad8ffd5bef0e0c0b640/bandage.gif" width="15"> paul kin , i am red leaders most W soldier guys trust me
 <br>
-call me tuichuf / paul / castiel or whoever im cosplaying <img src="https://github.com/tuichuf/tuichuf/blob/f93d6c719dfa6dcc366f8ad8ffd5bef0e0c0b640/small%20gun.gif" width="15">
+call me tuichuf / paul / castiel or whoever im cosplayin <img src="https://github.com/tuichuf/tuichuf/blob/f93d6c719dfa6dcc366f8ad8ffd5bef0e0c0b640/small%20gun.gif" width="15">
 <br>
   -
 <br>
