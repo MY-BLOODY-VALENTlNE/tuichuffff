@@ -1,5 +1,6 @@
 <details <p align="center">
 <summary> $${\color{#BA0000} DNI, ⠀PLEASE ⠀READ⠀BEFORE⠀INT}$$  </summary>
+<br>
 
   proshippers, racist, homophobic + transphobic, necrophiles, israel supporters, trump/MAGA/ICE supporters, wincest fans
 </details>
