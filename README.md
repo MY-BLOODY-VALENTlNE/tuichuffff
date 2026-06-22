@@ -6,14 +6,22 @@ proshippers, racist, homophobic + transphobic, necrophiles, israel supporters, t
 </details>
 
 <p align="center">
-<img src="https://github.com/tuichuf/tuichuf/blob/fedc6fbfba2a18dcb06ab42d16edafeb55147375/graphic%20one.png" width="500"> 
+<img src="https://github.com/tuichuf/tuichuf/blob/fedc6fbfba2a18dcb06ab42d16edafeb55147375/graphic%20one.png" width="400"> 
 </p>
 
 <p align="center">
 <img src="https://github.com/tuichuf/tuichuf/blob/fedc6fbfba2a18dcb06ab42d16edafeb55147375/villanious.gif" width="82"> <img src="https://github.com/tuichuf/tuichuf/blob/fedc6fbfba2a18dcb06ab42d16edafeb55147375/revolutionary.gif" width="105"> <img src="https://github.com/tuichuf/tuichuf/blob/fedc6fbfba2a18dcb06ab42d16edafeb55147375/blooodthirsty.gif" width="100"> 
 </p>
 
-<p align="center"> <img src="https://github.com/tuichuf/tuichuf/blob/f93d6c719dfa6dcc366f8ad8ffd5bef0e0c0b640/bandage.gif" width="15"> call me tuichuf / castiel or whoever im cosplaying <img src="https://github.com/tuichuf/tuichuf/blob/f93d6c719dfa6dcc366f8ad8ffd5bef0e0c0b640/small%20gun.gif" width="15"> </p>
+<p align="center"> 
+<img src="https://github.com/tuichuf/tuichuf/blob/f93d6c719dfa6dcc366f8ad8ffd5bef0e0c0b640/bandage.gif" width="15"> paul kin , i am red leaders most W soldier guys trust me
+<br>
+call me tuichuf / paul / castiel or whoever im cosplaying <img src="https://github.com/tuichuf/tuichuf/blob/f93d6c719dfa6dcc366f8ad8ffd5bef0e0c0b640/small%20gun.gif" width="15">
+<br>
+  -
+<br>
+avid beretta 92fs, m60 machine gun and winchester shotguns fan
+</p>
 
 <p align="center">
 <img src="https://github.com/tuichuf/tuichuf/blob/7f003d22885178b9299964c5aa410bb461270751/target.gif" width="50"> 
