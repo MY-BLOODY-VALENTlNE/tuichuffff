@@ -23,9 +23,7 @@
 </p>
 
 <p align="center"> 
-<img src="https://github.com/tuichuf/tuichuf/blob/f93d6c719dfa6dcc366f8ad8ffd5bef0e0c0b640/bandage.gif" width="15"> paul kin , i am red leaders most W soldier guys trust me
-<br>
-call me tuichuf / paul / castiel or whoever im cosplayin <img src="https://github.com/tuichuf/tuichuf/blob/f93d6c719dfa6dcc366f8ad8ffd5bef0e0c0b640/small%20gun.gif" width="15">
+<img src="https://github.com/tuichuf/tuichuf/blob/f93d6c719dfa6dcc366f8ad8ffd5bef0e0c0b640/bandage.gif" width="15"> paul kin , i am red leaders most W soldier guys trust me <img src="https://github.com/tuichuf/tuichuf/blob/f93d6c719dfa6dcc366f8ad8ffd5bef0e0c0b640/small%20gun.gif" width="15">
 <br>
   -
 <br>
